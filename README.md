@@ -27,7 +27,7 @@ No matter what I do to contribute to the web world, I will never have an effect.
 frequently, and am too retarded to make a nice looking homepage.
 
 ### How do we get here: My miserable backstory as a chronic soyboy
-When I was a young child, I feel deep down a hole in the floor and met a flower who blew his seed on me. I felt traumatized at first,
+When I was a young child, I fell deep down a hole in the floor and met a flower who blew his seed on me. I felt traumatized at first,
 but I later realised what this meant for me. I, was THE ultimate hypercuck. I was excited to serve my people, but, as an extention
 of this peculiar turn of life, I am a registered sex offender, and I will not be diving into the details. Nowadays, I am constantly
 in the races to consume more and more soylent, and get fatter and fatter, because at the end of the day, what do we all need? 
